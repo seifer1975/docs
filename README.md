@@ -1,0 +1,2 @@
+# docs
+Hi I'm Don, I’m kind,easy going, hardworking person and willing to learn more updated technologies.  I’m good at troubleshooting desktop computers and network, web developing, graphic and video designs. I’m a graduate of Bachelor of Science in Computer Science Major in Network Administration. I like to search new ideas and trends over the network for references with my designs. I enjoy working with others because that will help me grow more.
